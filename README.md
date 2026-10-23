@@ -71,3 +71,6 @@ q@2026-10-22:
 >我艹 爽飞了
 
 ...
+
+---
+![Moe Counter](https://count.getloli.com/get/@thegreatsnarker?theme=asoul)
